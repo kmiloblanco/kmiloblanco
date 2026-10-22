@@ -27,5 +27,5 @@ Me apasiona transformar datos en decisiones estratégicas y asegurar la máxima 
 - **Hoja de Vida:** [📄 Formato Optimizado ATS](https://drive.google.com/file/d/1yTuNCJHkzH7UumwFM40uzD_kS80t2tYm/view?usp=sharing) | [🎨 Formato Visual Diseñado](https://drive.google.com/file/d/1XRqK0g8Eo3x_zqeddYloUYJwoFsD9i-I/view?usp=sharing)
 - **LinkedIn:** [://linkedin.com](https://www.://linkedin.com)
 - **Correo:** kmilosanchez123nv@gmail.com
+- **Telefono:** 3154430364
 - **Ubicación:** Medellín, Colombia
-
