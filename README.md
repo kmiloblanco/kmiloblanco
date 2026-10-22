@@ -14,13 +14,6 @@ Me apasiona transformar datos en decisiones estratégicas y asegurar la máxima 
 
 ---
 
-## 📊 Estadísticas de GitHub
-
-![Estadísticas de kmiloblanco](https://vercel.app)
-
-![Lenguajes de kmiloblanco](https://vercel.app)
-
-
 ---
 
 ## 📂 Proyectos Destacados
